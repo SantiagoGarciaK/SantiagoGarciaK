@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **santigarciauy07@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/santiago-garc%C3%ADa-garc%C3%ADa-a83369226/ </h3>
 <p align="left">
 </p>
 
